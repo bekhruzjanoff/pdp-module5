@@ -1,1 +1,1 @@
-hello world
+P24 gruhi talabasi Urinpulatov Behruz
